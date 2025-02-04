@@ -1,1 +1,1 @@
-Hanya untuk menyimpan Code
+Hanya untuk menyimpan Link/Code
