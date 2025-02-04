@@ -1,1 +1,1 @@
-Blog Pribadi
+Hanya untuk menyimpan Link/Code
